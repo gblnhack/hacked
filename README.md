@@ -1,0 +1,2 @@
+# hacked
+Gunakan dengan bijak
